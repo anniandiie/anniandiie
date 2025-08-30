@@ -12,3 +12,5 @@
 usually afk!! will block if feel unsafe
 
 I do not accept friend requests from others. But I will accept c+h if you really want
+
+[click 2 read my rentry](https://rentry.co/glitzchyy)
