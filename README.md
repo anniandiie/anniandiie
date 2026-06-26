@@ -12,6 +12,8 @@ I might block / cover your view when I'm AFK, but I DON'T CARE — I'm not bothe
 
 I absolutely will not respond to your messages, in any form whatsoever (unless you are someone I am close to and truly care about)
 
+I block freely If I think you're a weirdo... or you scared me.
+
    __๑♡⁠๑__
 
 With a slight exception, I'm okay with cuddling (c+h) ; you can cuddle me if you want, but I definitely won't reciprocate. Because I'm not interested in interact with other people
