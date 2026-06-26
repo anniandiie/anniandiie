@@ -1,16 +1,11 @@
 <div align="center">
 
+hi. thank you for reading this shit i wrote because you **NEED** to read it
 
-![image](https://64.media.tumblr.com/c35c9a720ae51e25914fc7e1f0144229/fa73c2813125b945-f8/s1280x1920/a898ea523491c30a982478aaa682f5fcd1b22672.pnj)
+im A (Andie) and 16 y.o . 
 
-<div align="center"> call me glitch
-  
-15 , and use any pronoun if u want
+**DO NOT INTEREST** me unless we are close! I spend most of my time afk in Pony Town
 
-────୨ৎ────
+I might block / cover your view when I'm AFK, but I DON'T CARE — I'm not bothered by it. Feel free to hide me if I cover you. it doesn't matter to me.
 
-usually afk!! will block if feel unsafe
-
-I do not accept friend requests from others. But I will accept c+h if you really want
-
-[click 2 read my rentry](https://rentry.co/glitzchyy)
+I absolutely will not respond to your messages, in any form whatsoever (unless you are someone I am close to and truly care about)
