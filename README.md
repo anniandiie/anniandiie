@@ -4,7 +4,7 @@
 
 hi. thank you for reading this shit i wrote because you **NEED** to read it
 
-im A (Andie) and 16 y.o . I use any pronouns
+im A (Andie) and 17 y.o . I use any pronouns
 
 **DO NOT INTEREST** me unless we are close! I spend most of my time afk in Pony Town
 
