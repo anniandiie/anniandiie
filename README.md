@@ -2,7 +2,7 @@
 
 ^_^
 
-hi. thank you for reading this shit i wrote because you **NEED** to read it
+hi. thank you for reading this shit I wrote
 
 im A (Andie) and 17 y.o . I use any pronouns
 
